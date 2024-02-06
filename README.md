@@ -1,3 +1,3 @@
 # My Love Story
-Site: http://love.cuiqingcai.com/
+Site: http://love.brandon loves AJ.com/
 # valentinesdaytoAJ
